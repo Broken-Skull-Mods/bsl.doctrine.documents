@@ -9,7 +9,7 @@ The ping pong filling is to ensure the teams are well balanced, you can test it 
 
 ### From Platoon down to Fireteam
 
-[--DoctrineTeamFilling()--] [--/DoctrineTeamFilling--]
+[--DoctrineTeamFilling(PlayerCount="12")--] [--/DoctrineTeamFilling--]
 
 
 ## Team Breakdown
