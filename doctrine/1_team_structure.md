@@ -7,6 +7,8 @@ Our team structure is populated from the top to bottom with 2 or more squads and
 
 The ping pong filling is to ensure the teams are well balanced, you can test it out yourself.
 
+### From Platoon down to Fireteam
+
 [--DoctrineTeamFilling()--] [--/DoctrineTeamFilling--]
 
 
