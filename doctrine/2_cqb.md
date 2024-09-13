@@ -4,7 +4,7 @@ We are using simple cross-hook for all or our CQB.
 ## Stack Up
 The stacking is very impotant as it will define how you breach the room and how much eyes you can get inside before breaching.
 
-At least, 6 out of 10 the first man to breach will go down... this is simply the danger and reality of CQC... the most important thing is with the breach starts you get inside no matter what and you do not ever stop in a door way.
+At least, 6 out of 10 the first man to breach will go down... this is simply the danger and reality of CQC... the most important thing is once the breach starts, you get inside no matter what and you do not ever stop in a door way.
 
 ## CQC Examples
 ![CQC Dotrine Example](https://raw.githubusercontent.com/Broken-Skull-Mods/bsl.doctrine.documents/main/doctrine/assets/cqc_doctrine.png)
