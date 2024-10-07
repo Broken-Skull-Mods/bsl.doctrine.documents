@@ -38,6 +38,8 @@ BSL were taping into TFT dictator's paranoia... easy target!
 - BSL ditching TFT domain to a trusted third party to deliver to TFT as an attempt to get rid of TFT as we grew way past this group and are moving on.
 - Few week after Brandon left TFT and start his now new dead unit.
 
+Fyi: Apollo is so hated that being name Apollo in BSL will get you kicked ;)
+
 ## Sawing Branch We Sitting On
 BSL went through a bad, a bad and a horrible Saturday mission experience...
 
