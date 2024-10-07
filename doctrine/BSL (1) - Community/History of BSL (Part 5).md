@@ -25,3 +25,5 @@ We lost a friend, a founder and a valuable member that is the greatest shame.
 
 
 
+## Return to Root
+BSL is currently returning Saturday to a more restrictive nature as it should have been hoperfully our Milsim partners will return and our new casual curious will enjoy that new dynamic.
