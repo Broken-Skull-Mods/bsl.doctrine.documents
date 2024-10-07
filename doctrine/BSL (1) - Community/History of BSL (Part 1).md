@@ -39,16 +39,15 @@ Actions of a mad man reacting to his paranoia because he understood that Brandon
 
 ## The War Party Aftermath
 
-After Brandon's return to TFT with all the bell and whisles, the dictator takes the whole deal as a dodged bullet and because he always takes the wrong conclusion out of situations and refuses to change he cannot see what is yet to come. 
+After Brandon's return to TFT with all the bell and whistles, the dictator takes the whole deal as a dodged bullet and because he always takes the wrong conclusion out of situations and refuses to change he cannot see what is yet to come. 
 
-What he did not see tho is that the damages to him and brandon's relationship were broken beyond repair after the rotten dictator questioned Brandon's integrity and accused him of ochestrating a coup which was not the case.
+What he did not see tho is that the damages to him and brandon's relationship were broken beyond repair after the rotten dictator questioned Brandon's integrity and accused him of orchestrating a coup which was not the case.
 
-Bloody's logo making for War Party and Logo schattered after war party disbanded did absolutely not help smoothing things over if anything it confirmed in his mind that war party was indeed a coup and hated our awesome logos!
+Bloody's logo making for War Party and Logo shattered after war party disbanded did absolutely not help smoothing things over if anything it confirmed in his mind that war party was indeed a coup and hated our awesome logos!
 
-The arragment was Brandon can host missions on the TFT server and use TFT teamspeak but any other member had the Bloody's teamspeak  and orka's server which put the rest of us in the semi-similar position than before...
+The arrangement was Brandon can host missions on the TFT server and use TFT teamspeak but any other member had the Bloody's teamspeak  and orka's server which put the rest of us in the semi-similar position than before...
 
 Brandon was managing community games and Zeusing regular events.
 
-But after many draining work and draining patience to pull up with the dictatory bullshit and comments on community made ops are more or less bad and antistasi makes bad unit players... all sort of premade half cock bullshit having effect of a groing resentment for the guy across the community....
-
+But after many draining work and draining patience to pull up with the dictator's bullshit and comments on community made ops are more or less bad and antistasi makes bad unit players... all sort of premade half cock bullshit having effect of a growing resentment for the guy across the community....
 
