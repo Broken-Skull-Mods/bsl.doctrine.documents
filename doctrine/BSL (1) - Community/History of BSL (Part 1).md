@@ -1,26 +1,31 @@
 # The Founders
-Everyone like a little bit of drama here and there, this is ours!
+Everyone likes a little bit of drama here and there, this is ours!
 
 Broken Skull Lunatics was founded by [BloodyMystik](https://steamcommunity.com/profiles/76561197971902294/), [Sammy Dorito](https://steamcommunity.com/profiles/76561197971902294/), [Orka](https://steamcommunity.com/profiles/76561198268088665/) and [Just1n](https://steamcommunity.com/id/Just1n_L/) on April 1st, 2024 and was not an April fool i promise!.
 
-### Orka
-### Just1n
-### Sammy Dorito
-### BloodyMystik
+## The Donation System
+BSL has a unique donation system rarely seen elsewhere! 
+
+None of the BSL owners benefits from donations and all donations are used exclusively to provide services and content for the community!
+
+Therefore, a budget must be approved by the donating members and the money must be used to provides goodies, materials and services such as servers, licenses and more. 
+
+None of which benefit its owners.
+
+Members can donate by providing servers and services free of charge to the community and BSL owned services are handle solely by the Ultimate Discord Owner through the council command which answers to the voted budget.
 
 # Critical Events
 This is the chronological order of the events that led to the creation of Broken Skull Lunatics and anyone else telling you a different story is a lying bastard! 
 
 
-## The TFT Meet Up
-[BloodyMystik](https://steamcommunity.com/profiles/76561197971902294/), [Sammy Dorito](https://steamcommunity.com/profiles/76561197971902294/), [Orka](https://steamcommunity.com/profiles/76561198268088665/) and [Just1n](https://steamcommunity.com/id/Just1n_L/) all met in a unit call TFT abrv not to advertise that bullshit of a unit.
+## The TFT Meet Up!
+BloodyMystik, Sammy Dorito, Orka and Just1n all met in a unit call TFT abbreviated not to advertise that bullshit of a unit.
 
 TFT was a dictatorship like many other units out there and the first Arma 3 unit for some of us. Nothing is wrong with that whenever a dictator is level headed, intelligent, not full of himself threaten and paranoid.
 
 Don't get me wrong, TFT brought great benefits to us all and an expectation of a level of commitment still reflected today in BSL... you cannot erase a zebra stripes.
 
-Brandon what we would call here at BSL a community organizer,
-he created Arma 3 missions for casual or during different days than TFT regular events but we had no way to announce those event nor had a dedicated section in TFT to handle announcement and various other thing related to community generated content.
+Brandon what we would call here at BSL a community organizer, he created Arma 3 missions for casual or during different days than TFT regular events but we had no way to announce those events nor had a dedicated section in TFT to handle announcement and various other thing related to community generated content.
 
 ## The War Party Coup
 Following frustration of limitation, after attempting to gain a TFT section for the community to grow, Orka created the War Party discord to fulfill the need of the growing community, without any malice of what so ever where Brandon could host and announce the community made mission as we did not have any other ways to do that in TFT.
