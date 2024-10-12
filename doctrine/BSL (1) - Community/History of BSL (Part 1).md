@@ -54,5 +54,5 @@ The arrangement was Brandon can host missions on the TFT server and use TFT team
 
 Brandon was managing community games and Zeusing regular events.
 
-But after many draining work and draining patience to pull up with the dictator's bullshit and comments on community made ops are more or less bad and antistasi makes bad unit players... all sort of premade half cock bullshit having effect of a growing resentment for the guy across the community....
+But after many draining work and draining patience to pull up with the dictator's bullshit and comments on community made ops are more or less bad and antistasi makes bad unit players... all sort of premade half cock bullshit having effect of a growing resentment for the guys across the community....
 
