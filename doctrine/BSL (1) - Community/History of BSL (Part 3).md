@@ -1,63 +1,54 @@
-
 ## The Decision
-Apollo has made some racist comments several weeks prior but he was a bottom feeder then... there was no issue! Plus since he is Mexican he cannot be racist, so he keeps saying.
 
-BloodyMystik, still on the fence about making the full move to support Archer Company, see that Apollo is on the fast track up... so BloodyMystik decides in a very public and unprofessional manner in an attempt to force the hand of the dictator and ensure Apollo will never get promoted to where he wanna be as it would be an absolute shame an unbearable position for BloodyMystik to stay in...
+Several weeks prior, **Apollo** had made racist comments, but at the time, he was just a bottom feeder, and there was no issue. He also kept claiming that, because he was Mexican, he couldn’t be racist.
 
-Bloody deploys the well guarded ammunition of the racist comments made by the so called Apollo in a way where in cannot be taking down because the dictator was away that day and everyone could see and weight in to block that fucker...
+**BloodyMystik**, still undecided about fully supporting **Archer Company**, noticed that Apollo was quickly rising through the ranks. So, in a very public and unprofessional manner, BloodyMystik decided to force the dictator’s hand and prevent Apollo from being promoted any further, as it would be an unbearable situation for him to remain in.
 
-Instead, BloodyMystik had to listen the dictator in a Voice chat for 20 minutes explaining why Apollo's racisms was not malicious even tho calling "black people monkeys" is pretty obvious to some of us... and no action would be taken but promotion would be slowed down...
+BloodyMystik released the well-guarded ammunition of Apollo’s racist comments in a way that could not be taken down, since the dictator was away that day. This allowed everyone to see the comments and weigh in, hoping to block Apollo’s promotion.
 
-BloodyMystik left the server shortly and TFT active members jumped ship after having seen Apollo would not be kicked out or disciplined for that matter which met beloved people by the dictator could violate the rules without any fear of rules being applied to them... bottom line is getting rid of Apollo would have weakened Brandon ability to  concretize more his members and prosperity.
+Instead, BloodyMystik had to endure a 20-minute voice chat with the dictator, where he tried to justify Apollo’s racism, claiming it wasn’t malicious, even though calling “black people monkeys” was pretty obvious to some. No action was taken, and Apollo’s promotion was merely slowed down.
 
-Reality was Brandon did not want to recruit and scalp TFT members... he was not gonna prevent it but Apollo situation made it clear that war was brewing and the aggressive behavior of the dictator towards members over Archer was pushing people away even more.
+After this, BloodyMystik left the server, and many active members of **TFT** jumped ship upon seeing that Apollo wouldn’t be kicked out or disciplined. This situation showed that people close to the dictator could violate the rules without fear of consequences.
 
-It did not prevent Brandon from enjoying influx and talk shit about the dictator.
+The reality was that **Brandon** did not want to recruit and scalp **TFT** members. However, the Apollo situation made it clear that war was brewing, and the dictator’s aggressive behavior toward members over **Archer** was only pushing people away.
 
+Brandon still enjoyed the influx of members and would talk shit about the dictator.
 
-Some left and some stay over TFT, Orka stay to mostly play diplomacy.
+Some left, some stayed in **TFT**, and **Orka** stayed mainly to play diplomacy.
 
 ## The Silent War
-BloodyMystik made an Archer Company website and redirected TFT domain name to it which fueled the burning fire of war.
 
-Bloody has been openly accused of maliciously to have purchased the domain initially to screw TFT over which was not the case but during war time anything is permitted.
+**BloodyMystik** created an **Archer Company** website and redirected the **TFT** domain name to it, fueling the flames of war.
 
-TFT had the structure which was imported by having many member from TFT and the years of operating TFT against the freshly born unit.
+He was openly accused of maliciously purchasing the domain to screw over **TFT**, which wasn’t the case. However, during wartime, anything goes.
 
-Brandon had mission making experience gathered from the way TFT made mission.
+**TFT** had a structure that was imported by having many members from **TFT** and years of operating **TFT** against the newly formed **Archer Company**.
 
-BloodyMystik had the technical knowledge of development and lots of resources at  disposal that Archer was willing to enjoy.
+- **Brandon** had mission-making experience from **TFT**.
+- **BloodyMystik** had technical knowledge of development and vast resources at **Archer’s** disposal.
+- **Pride** had the golden month to recruit new members.
+- **Orka** had technical expertise and prior experience in community building, which was pivotal in shaping and structuring **BSL** today.
 
-Pride had the month of gold to recruit new people.
+A **Tit for Tat** campaign ensued:
+- **Warning Campaigns** under every **TFT** recruitment post.
+- Alerts that members were above the rules, and donations only benefited the owner.
+- Tracking the dictator’s every move on **Steam**, even getting him banned from **Steam discussions** for a few days.
 
-Orka had technical knowledge and prior experience of building a community which was pivotal in how BSL is shaped and structured today.
+The situation turned into a **bloodbath**.
 
-Tit for Tat has been going on (Warning Campaign under every TFT recruitment post that liked people are above to rules and donation only benefit the owner, website, multiple operation, better recruitment influx, tracking the dictator's every move on steam... getting him ban from steam discussion for few days)... i'm not gonna lie it was a bloodbath.
+## Caesar Wins
 
-## Ceasar Wins
+**Orka** became increasingly critical of **Brandon’s** behavior towards certain members, especially as he began copying the tactics of **TFT** and becoming just as bad as the dictator. Only two weeks in...
 
-Orka was very critical of Brandon behavior with some members and how he was just copying TFT and just becoming as bad... Only 2 weeks in...
+The next morning, **Orka** was banned, **BloodyMystik** was banned, and later that day, **Brandon nuked the server**.
 
-The next morning Orka was banned, BloodyMystik was banned and later that day Brandon nuked the server!
+All the hours of development by **BloodyMystik** and **Orka** were gone. All the work done by **Pride**, **Sammy**, and others was lost.
 
-All of the hours of development by BloodyMystik and Orka gone...
+Initially, **BloodyMystik** had predicted that **Bryson** would be the problem, but to his surprise, Bryson remained level-headed and proved to be a great second-in-command who mitigated issues with the neo-dictator, **Brandon**. Bryson understood the bigger picture and was ready to work toward achieving it.
 
-All the work Pride, Sammy and others gone!
+The death of **Archer** also marked the death of **Bryson’s** growth, maturity, and respect.
 
-Initially, BloodyMystik predicted Bryson would be the problem to his very good surprise! Bryson was level headed and great second in command to metigate issues with the neo-dictator, Brandon... Bryson understood the big picture and was ready to work in achieving it...
+**BloodyMystik** once said: 
+> "If Bryson had put the same effort into **BSL** as he did in **Archer**, he would have been a top G. It’s such a waste to see a guy with such potential being affected by petty parties and an asshole like Brandon."
 
-
-The death of Archer was also the death of Bryson growing maturity and respect.
-
-BloodyMystik said once "If Bryson had put the same effort in BSL as he did in Archer he would have been a top g... it's such a waste to see a guy of such potential being affected by petty parties and an ass hole like Brando"
-
-2 Weeks in and no more Archer... the good news travels back to TFT and it's a victory! they are prepare with firm hands a welcome back wagon, apology letters and defeated faces to show up!
-
-
-
-
-
-
-
-
-
+Two weeks in, **Archer** was no more. The good news spread back to **TFT**, and it was seen as a victory. **TFT** was preparing a welcome-back wagon, apology letters, and defeated faces.

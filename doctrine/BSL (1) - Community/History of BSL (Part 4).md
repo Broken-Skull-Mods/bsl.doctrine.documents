@@ -1,83 +1,78 @@
 ## The Birth of Broken Skull Lunatics
 
-BloodyMystik created the newly called Broken Skull Mods which was later rebranded Broken Skull Lunatics...
+**BloodyMystik** created the newly named **Broken Skull Mods**, which was later rebranded to **Broken Skull Lunatics**.
 
-- Broken reference the logo of TFT that we have broken.
-- Skull reference the logo of TFT, skull semi stolen from Ghost Recon Wildlands.
-- Lunatics is our people, crazy, delusional and shall not be defeated.
+- **Broken** refers to the **TFT** logo that we've broken.
+- **Skull** references the skull in the **TFT** logo, which was semi-stolen from *Ghost Recon Wildlands*.
+- **Lunatics** represents our people—crazy, delusional, and undefeatable.
 
-BloodyMystik was very decisive and swift the grab the power vaccum created by Brandon nuking of Archer Company, which he could've transfered to Bryson or any of us instead like a fucking selfish self centered bastard he destroyed it.
+**BloodyMystik**, **Orka**, and **Sammy** quickly seized the power vacuum created by **Brandon’s** destruction of **Archer Company**, which he could have transferred to **Bryson** or any of us. Instead, like a selfish, self-centered bastard, he destroyed it.
 
-Based on what happen BloodyMystik decided, we need someone level headed whom will not be taking rash decision at the expense of everyone and Bloody said "I'm sick of dumb fuckers screwing everything up instead of growing so im not joining anyone else's unit" and with Sammy support the remnant of Archer flocked over to BSL.
+Given what had happened, **BloodyMystik** decided that the community needed someone level-headed, who wouldn’t make rash decisions at the expense of everyone else. Bloody said, *"I'm sick of dumb fuckers screwing everything up instead of growing, so I'm not joining anyone else's unit."* With **Sammy’s** support, the remnants of **Archer** flocked over to **BSL**.
 
-Sammy, Orka, Just1n and Bloody built most current structure of the community discord.
+**Sammy**, **Orka**, **Just1n**, and **BloodyMystik** built most of the current structure of the **BSL** community discord.
 
-Special Operation Framework was implemented into the mission making process.
-
-BSL were taping into TFT dictator's paranoia... easy target!
+**Special Operations Framework** was implemented into the mission-making process, and **BSL** began tapping into the **TFT** dictator’s paranoia... an easy target!
 
 ## Tit for Tat (BSL vs TFT)
 
-- Apollo attempting to join our community in disguise.
-- Pride attempting to join theirs.
-- Dictator accusing BSL of stiring shit.
-- BSL reminding TFT that Apollo instigated shit.
-- Apollo joining our Arma 3 servers.
-- Pride joining their comunity.
-- BSL accused of creating false account, without any proof which was lame reason to kick some of TFT members under "false" suspicion.
-- Sammy was kicked while away on deployment for no apparent reason.
-- Snow was kicked while away on deployment fo no apparent reason.
-- Some other were kicked as well.
-- TFT being made aware that Apollo stirs shit and no action is taken from.
-- TFT made it clear no matter what Apollo can do he is more valued in the dictator's eyes even tho he cause the BSL migration in the first place.
-- Brandon joins BSL and BSL consider his behavior as water under the bridge which he also join TFT and stirred more shit.
-- Brandon leaves BSL.
-- Brandon threw all the blame on BloodyMystik all of it.
-- TFT trashing BloodyMystik as to problem...
-- BloodyMystik informing TFT of let a snake like Brandon back to TFT.
-- BSL ditching TFT domain to a trusted third party to deliver to TFT as an attempt to get rid of TFT as we grew way past this group and are moving on.
-- Few week after Brandon left TFT and start his now new dead unit.
+- **Apollo** attempted to join our community in disguise.
+- **Pride** attempted to join theirs.
+- The dictator accused **BSL** of stirring shit.
+- **BSL** reminded **TFT** that **Apollo** instigated the issues.
+- **Apollo** joined our **Arma 3** servers.
+- **Pride** joined their community.
+- **BSL** was accused of creating false accounts, without any proof, which led to the kicking of **TFT** members under "false" suspicion.
+- **Sammy** was kicked while away on deployment for no apparent reason.
+- **Snow** was also kicked while away on deployment for no apparent reason.
+- Several other members were kicked as well.
+- **TFT** was made aware that **Apollo** was stirring shit, but no action was taken.
+- **TFT** made it clear that, no matter what, **Apollo** was more valued by the dictator, even though he caused the **BSL** migration in the first place.
+- **Brandon** joined **BSL**, and we considered his behavior water under the bridge. However, he also joined **TFT** and stirred more shit.
+- **Brandon** eventually left **BSL**, throwing all the blame on **BloodyMystik**.
+- **TFT** trashed **BloodyMystik** as the problem.
+- **BloodyMystik** informed **TFT** about letting a snake like **Brandon** back into the fold.
+- **BSL** ditched the **TFT** domain by handing it to a trusted third party, symbolizing our growth past **TFT** and moving on.
+- A few weeks after **Brandon** left, **TFT** started its now-defunct unit.
 
-Fyi: Apollo is so hated that being name Apollo in BSL will get you kicked ;)
+*Note: **Apollo** is so hated that if someone joins **BSL** with the name **Apollo**, they will be kicked.* ;)
 
-## Sawing Branch We Sitting On
-BSL went through a bad, a bad and a horrible Saturday mission experience...
+## Sawing the Branch We’re Sitting On
 
-As a new community, lots of people has been changing things, trying to be different than TFT at the expanse of the experience of Saturday serious milsim exp.
+**BSL** went through a difficult and horrible **Saturday mission** experience...
 
-It is my personal opinion that *Ditching training, not properly sitting down to laydown proper foundation destroyed the experience i was looking for! The experience TFT provided that BSL was consistenly failing to provide. An experience or belonging to a team consistent and competent*.
+As a new community, many people were changing things, trying to be different from **TFT**, at the expense of the serious **Saturday Milsim experience** we were aiming for.
 
-That failure cause extreme changes and bad decisions... the ops started very good... but the various issues surrounding the mission was a setup for a terrible experience between the bad settings, bad zeusing, bad RP, lack of ground information... lack of will to restrict saturday behind training wall.
+*It is my personal opinion that ditching training and not properly laying down the foundation destroyed the experience I was looking for! The experience **TFT** provided, that **BSL** consistently failed to provide. An experience of belonging to a team that is consistent and competent.*
 
-Pride consistent influx of new members deluting the old members without any training and consistent operational success.
+That failure caused extreme changes and bad decisions. The ops started out well, but various issues surrounding the mission setup led to a terrible experience due to bad settings, bad zeusing, poor RP, lack of ground information, and lack of will to restrict **Saturday** to training-focused ops.
+
+**Pride’s** consistent influx of new members diluted the core group of old members without providing proper training and operational success.
 
 ## Growing Casualism
 
-Pride recruitment of his golden recruit Tex brought 80% of the recruits to BSL in addition of making Sunday ops.
+**Pride’s** recruitment of his golden recruit **Tex** brought 80% of the recruits to **BSL**, in addition to making **Sunday ops** more casual.
 
-Tex's made the best of operations as casual which the same casual people attended Saturday meant to be milsim... no training failing to have a unified vision and at least a unified system.
+**Tex** made the best of the casual operations, but the same casual attendees also showed up to **Saturday** ops, which were meant to be **Milsim**. Without training, a unified vision, or a solid system, this led to a wedge being driven between the more Milsim-oriented members and the casual players. Eventually, Milsim had to reform its system to find common ground through lengthy discussions.
 
-Wedge being caved between the more milsims and the more casuals and failure to find common ground until milsim caved to reform their system and find some common ground through lengthy talks.
+The failure of **Saturday operations** to implement **Milsim** with a now majority-casual player base, lacking discipline and proper leadership, was a complete disaster. I thank all **BSL** members who put up with this and contributed every day to fix and improve it as a collective.
 
-The failure of Saturday operations to implement milsim with a now majority casual players, lacking discipline and lacking proper leadership with proper information was a complete disaster, which i thank all member of BSl that put up with this and contributing everyday to fix and make it better as a collective.
+There’s plenty of blame to go around, but when **Sammy** left for deployment, **Just1n** worked tirelessly to keep the community going and support mod development.
 
-There is a lot of blame to throw around but... when Sammy left for deployment, Just1n worked everyday swaet and tears to keep that community going and supporting the mod development section of BSL!
+**Just1n** earned his place as a prime example of a man stepping up to take on more than he could chew and failing without giving up!
 
-Just1n more than earned his place and this is the prime example of a man stepping up to take more than he can chew and failing without giving up!
+At that time, **Orka** was having issues with many members, not enough to prompt complaints about him, but enough to become a growing problem. On many issues, **Orka** had been right.
 
-At that time, Orka was fighting with a lot of members, not enough to get members to complain about him but enough to grow into a becoming problem which on many issues Orka had been right.
+Remember, **Orka** built the **Council System** and helped build the entire structure of **BSL**.
 
-Remember that Orka built the Council System and help build the whole structure.
+At this point, **Sammy** was gone for 9 months, and we had a community dominated by casual players. The only good operations were **Sunday casual ops**.
 
-At that point Sammy is gone for 9 months, we have now a community of dominant casual players and the only ops good are casual sundays!
+Many of the Milsim recruits left because they wanted a Milsim-style unit like **TFT**, with a game structure and discord structure where NCOs held as much power in the server as in-game.
 
-Many of the Milsim recruit left because of wanting a Milsim unit like TFT game structure are discord struture and NCO holds the power in the server just as much as in game...
-
-The remaining Milsim are either no longer showing (Bloody, Orka, J, Sammy, Systm and Frosl...) for various reasons...
+The remaining Milsim players were either no longer showing up (e.g., **Bloody**, **Orka**, **J**, **Sammy**, **Systm**, and **Frosl**) for various reasons...
 
 ## The Mods Split
 
-Diversity makes you grow better... hearing and taking what you deem good from the side you dont like vice versa makes you become better.
+Diversity makes you grow better. Hearing and taking what you deem good from the side you don’t like, and vice versa, makes you a better community.
 
-We have now more than 34 Mods publish on workshop for Arma 3 thanks to BloodyMystik and Orka.
-
+We now have more than 34 mods published on the **Arma 3** workshop thanks to **BloodyMystik** and **Orka**.

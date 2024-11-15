@@ -1,41 +1,37 @@
 ## The Drunk Pride Yappin
 
-Late night, after several drinks Pride having good conversation with the dictatory... the balls on that guy! Conversation evolves into tell the dictatory what is wrong with this his leadership, why there will be a real coup this time and why people hate the motherbuzzer... some truth and some distorted truth in the vibe of filling the blank...
+One late night, after several drinks, Pride had a good conversation with the dictator... the audacity of that guy! The conversation evolved into a frank discussion about what was wrong with the dictator’s leadership, why a real coup was about to happen, and why people hated the motherbuzzer. Some of what Pride said was true, while other parts were distorted to fill in the blanks.
 
-Ultimately Pride gets himself booted from TFT and the dictator is on the hunt to find out if Pride is an all out liar or if there is a coup coming up!
+Ultimately, Pride got himself booted from TFT, and the dictator went on a hunt to determine if Pride was a complete liar or if a coup was truly coming.
 
-Most of the people mentioned flat out tell the dictator Pride is a lying bastard and everything he said is bullshit...
+Most of the people Pride mentioned flat out told the dictator that he was lying, and everything he said was bullshit. 
 
-The dictatory conclude that Pride is a liar and there is nothing wrong with TFT and everything is absolutely fine!
+The dictator concluded that Pride was a liar and that there was nothing wrong with TFT, believing everything was perfectly fine.
 
-While BloodyMystik tries to talk to the dictatory to tell him... that that is the wrong conclusion because no matter what is true and not true... if the situation happened that means self reflection is advised... but who's gonna tell a dictator the truth...
+Meanwhile, **BloodyMystik** tried to speak to the dictator, explaining that even if some of Pride's claims were false, the fact that the situation had occurred meant self-reflection was necessary. But who's going to tell a dictator the truth?
 
 ## The Archer Company Coup
-In the meantime,
-Brandon and Bryson created the Archer Company unit where Brandon is the head of the server...
 
-Brandon invites Orka and then few days/weeks later they invite BloodyMystk, Just1n, Sammy, Pride and other members.
+In the meantime, Brandon and Bryson created the **Archer Company** unit, with Brandon as the head of the server. 
 
-BloodyMystik & Orka sees that as an opportunity push Special Operation Framework mod into full testing while working hand in hand with mission makers which shaped the mod to become a mission maker toolkit.
+Brandon invited Orka, and a few days/weeks later, they invited BloodyMystik, Just1n, Sammy, Pride, and other members.
 
-Just1n saw that as an opportunity to continue the community missions and to get away from Apollo's unbearable voice!
+- **BloodyMystik** and **Orka** saw this as an opportunity to push the **Special Operations Framework mod** into full testing while working closely with mission makers to shape the mod into a toolkit for future mission creators.
+- **Just1n** viewed this as an opportunity to continue creating community missions and escape from Apollo's unbearable voice.
+- **Sammy** was on board, thinking it would be a great chance to create RP content and have fun with the boys.
+- **Orka** and **BloodyMystik** were working to shape the community into what **BSL** is today.
 
-Sammy was like hell yeah let's make RP stuff and have good time with the boys!
+Meanwhile, Pride was recruiting left and right, draining **TFT** of almost half of its active members. 
 
-Orka and BloodyMystik are trying to shape the community to more what BSL is today.
+TFT's most loyal members remained, and **BloodyMystik** theorized that this was because those members had spent less time around the dictator and were either unaware of the issues or hadn’t been exposed to them as much as others had.
 
-While little by little Pride is recruiting left and right draining TFT of almost half of it's active members.
+It’s important to note that Bryson and Brandon were NCOs in **TFT**, which left a power vacuum that **Apollo** quickly capitalized on, circling it like a fly around a pile of shit.
 
-TFT most loyal members stayed... which BloodyMystik theorized as because they did not spend that much time around the dictator they could not be converted as they did not see the issue or were not exposed as much as the rest of us did.
+**BloodyMystik** had tried to help **TFT** for a long time, including:
 
-Understand that Bryson and Brandon were NCOs over TFT and it left open a power vaccum which Apollo got circled it like fly circle a pile of shit.
+- Purchasing the domain name for the unit in the hope of developing the community’s web presence, while the donation system in **TFT** only benefited the dictator, not the community.
+- Developing mods that were consistently dismissed and frowned upon.
+- Hosting a TeamSpeak server that was never used for reasons unknown.
+- Offering to mass-produce mousepads at no extra charge, with costs refunded upon selling them, to help grow the dictator’s personal empire.
 
-BloodyMystik tried to help TFT for a long time,
-
-- Starting with buying the domain name for the unit in hope or developing the community's web presence while the donation system of TFT only benefit the dictator not the community...
-- By developing mods which always was dismissed and frown upon.
-- By hosting teamspeak server which was never used for some reasons.
-- By offering to mass produce mousepad at no extra charge than cost refunded upon selling them to help out his majesty to grow his personal empire!
-
-The full blown coup is now known by TFT, some left some stayed in both and some got the boot.
-
+Eventually, the full-blown coup was evident to **TFT**. Some members left, some stayed in both communities, and some got the boot.
